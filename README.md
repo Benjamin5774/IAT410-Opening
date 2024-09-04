@@ -1,1 +1,0 @@
-# IAT410-Opening
